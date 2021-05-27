@@ -1,1 +1,0 @@
-# Minds-Of-Tomorrow-Solucion
